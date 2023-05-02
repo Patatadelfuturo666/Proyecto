@@ -1,5 +1,11 @@
 # Proyecto
+1.Terminar el trabajo
 
-aa
+2.Pero ya
 
-aaa
+
+# Segundo parcial
+
+1.Ya casi acaba todo el segundo parcial
+
+2.falta poco
