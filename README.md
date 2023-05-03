@@ -8,4 +8,4 @@
 
 1.Ya casi acaba todo el segundo parcial
 
-2.falta poco
+2.falta poco.
